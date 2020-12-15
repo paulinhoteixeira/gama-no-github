@@ -1,0 +1,1 @@
+Muito bom o conteúdo do módulo de GIT, mas o professor acabou comendo alguns passos, somente o google salvou na caminhada até aqui. 
